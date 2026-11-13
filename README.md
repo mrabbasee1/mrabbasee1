@@ -74,4 +74,4 @@ I build fast, conversion-focused e-commerce stores on **Shopify** and **WordPres
 
 ### Let's talk
 
-Need a store built, migrated or sped up? Send me a message on **[LinkedIn](https://www.linkedin.com/in/muhammadasmar/)** with your store URL.
+Need a store built, migrated or sped up? Send me a message on **[LinkedIn](https://www.linkedin.com/in/asmar-abbasi/)** with your store URL.
